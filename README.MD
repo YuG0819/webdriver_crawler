@@ -1,1 +1,3 @@
-哈哈哈哈哈
+Newcomer,a lot of advice
+
+Email:jeson.yu@hotmail.com
